@@ -1,0 +1,1 @@
+Nån typ av plattformer där karaktären kan gå fram och bakåt
